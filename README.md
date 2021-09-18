@@ -1,0 +1,2 @@
+# baskidevrekarti
+baskidevrekarti.com
